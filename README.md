@@ -1,1 +1,1 @@
-# bmiet
+guru gopind singh indraprasth university
